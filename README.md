@@ -2,7 +2,7 @@
 - 👀 I’m interested in LifeStyle, Anime, Knowladge 
 - 🌱 I’m currently learning Data Science 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...yashrbhosale184@gamil.com
+- 📫 How to reach me yashrbhosale184@gamil.com
 - 😄 Pronouns: he 
 - ⚡ Fun fact: I like to rapp :] 
 
