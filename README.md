@@ -17,7 +17,7 @@
 - 💻 Working on projects spanning **AI agents, predictive modeling, BI dashboards, and chatbots**
 - 👀 Beyond code, I'm into **lifestyle, anime, and picking up new knowledge**
 - 💞️ Looking to collaborate on **Data Science / AI / Automation** projects
-- ⚡ Fun fact: I like to rap 🎤
+- ⚡ Fun fact: Jack of so many trades
 - 😄 Pronouns: He/Him
 
 ---
